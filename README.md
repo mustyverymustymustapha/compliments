@@ -1,0 +1,1 @@
+extremely strange old code. this generates a (literally) universal compliment. dont butcher the pronounciation or they might butcher you.![D9DE937F-0E4D-472F-B2C1-88E94DC434CD](https://github.com/user-attachments/assets/ae9b123d-4f26-4d04-8399-f5430766d15d)
